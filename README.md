@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @L0ur4. Nice to mee u
+- 👋 Hi, I’m @L0ur4. Nice to meet u
 - 👀 I’m interested in you <3
 - 🌱 I’m currently learning how 2 live -_-
 - 💞️ I’m looking to collaborate on life
